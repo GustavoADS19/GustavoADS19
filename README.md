@@ -1,7 +1,7 @@
 
 #### 📫 How to reach me: https://linktr.ee/gustavoads1102
 
-*Most used languages:*
+
 
 
 
